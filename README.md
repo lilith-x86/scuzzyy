@@ -1,2 +1,2 @@
-- scuzzy
-- she/they
+- Hi im lilith.
+
